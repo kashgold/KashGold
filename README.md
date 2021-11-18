@@ -11,6 +11,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with github
 - 💬 Ask me about how short I am
 - 📫 How to reach me: Just go to my house lol
-- 😄 Pronouns: Samsung/Fridge
+- 😄 Pronouns: N/A
 - ⚡ Fun fact: Did I tell you how short I am?
 -->
