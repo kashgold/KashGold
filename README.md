@@ -1,4 +1,4 @@
-### Hi there 👋
+### My name is Kash and I am very cool
 
 <!--
 **kashgold/KashGold** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
